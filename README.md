@@ -1,2 +1,1 @@
-# html_study_progate
-[screencapture-file-C-Users-Tedi-Irawan-Downloads-html-study-1-page23-index-html-2022-11-14-16_01_39.pdf](https://github.com/tedi0609/html_study_progate/files/10000815/screencapture-file-C-Users-Tedi-Irawan-Downloads-html-study-1-page23-index-html-2022-11-14-16_01_39.pdf)
+![image](https://user-images.githubusercontent.com/52597151/201606937-8f81eafb-6837-4628-9b0d-149210cfd3b7.png)
